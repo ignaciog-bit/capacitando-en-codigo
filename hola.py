@@ -1,1 +1,2 @@
-mandandome cagadasq
+mandandome cagadasq 
+que gay
