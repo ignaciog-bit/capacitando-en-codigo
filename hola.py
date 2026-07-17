@@ -1,2 +1,0 @@
-mandandome cagadasq
-Dale rojo
